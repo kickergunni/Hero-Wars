@@ -30,13 +30,14 @@ Some of the Buffs that Most High Level Guilds are Using:
 Damage-Werte: angeblich, wenn maxed out gegen Boss Level 160
 
 70M
-![[Pasted image 20251020210106.png]]
+![](../images/Pasted%20image%2020251020210106.png)
 
 14.6M
-![[Pasted image 20251020210214.png]]
+![](../images/Pasted%20image%2020251020210214.png)
 
 31.3M Martha ohne Oliver verwenden:
-![[Pasted image 20251020210258.png]]
+![](../images/Pasted%20image%2020251020210258.png)
 
 ???
-![[Pasted image 20251020210310.png]]
+![](../images/Pasted%20image%2020251020210310.png)
+
